@@ -35,7 +35,7 @@ Sou Engenheira Civil e de Produção, com pós-graduação em Inteligência Arti
 
 ## Contato
 
-- [LinkedIn](https://www.linkedin.com/in/seu-perfil)
+- [LinkedIn](https://www.linkedin.com/in/camila-almeida-rodrigues/?locale=pt_BR)
 - [Email](mailto:camila.rodrigues981@gmail.com)
 
 ---
